@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓 Airframe Powerplant<br>✈ Teknik Dirgantara ITDA<br>💡 Entrepreneur Mindset<br>📚 Committed To Continuous Learning And<br>      Becoming Better Of Myself<br>🔥 Pantang Menyerah
+👨‍🎓 Airframe Powerplant<br>✈ Teknik Dirgantara ITDA<br>💡 Entrepreneur Mindset<br>📚 keep learning and become a better person<br>🔥 Pantang Menyerah
 
 
 ## 🌐 Socials:
